@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about, if it has to be then it should be something interesting not related to coding
 - 📫 How to reach me: mail me at raribarandrodeep@gmail.com
 - 😄 Pronouns: As if i will say
-- ⚡ Fun fact: i have a youtube channel
+- ⚡ Fun fact: I have a youtube channel, its called RandomMemeWorks, please subscribe
 -->
